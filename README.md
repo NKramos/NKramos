@@ -1,16 +1,19 @@
-## Hi there 👋
+eai sou o nick 
 
-<!--
-**NKramos/NKramos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sou umbandista 🤍 
 
-Here are some ideas to get you started:
+amo meu palmeiras 💚🐷
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+minha paixão é jogar bola
+
+gosto de animes
+
+amo ler poemas
+
+meu sonho é ser um bilionario💸 
+
+🥇 01 hj e sempre
+
+
+![](https://media.tenor.com/D5NwrpJKNJYAAAAi/pppp.gif)
+
