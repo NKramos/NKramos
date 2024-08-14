@@ -2,7 +2,7 @@ eai sou o nick
 
 sou umbandista 🤍 
 
-amo meu palmeiras 💚🐷
+meu amor é o palmeiras 💚🐷
 
 minha paixão é jogar bola
 
